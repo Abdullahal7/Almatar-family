@@ -406,3 +406,9 @@ https://www.wikidata.org/wiki/Q139771765
 يوسف بن أحمد المطر  
 نسب عائلة المطر  
 أصل عائلة المطر
+almatar family
+almatar family bahrain
+al-matar family
+al-matar family bahrain
+almatar family riffa
+al-matar family riffa
